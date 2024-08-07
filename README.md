@@ -1,1 +1,0 @@
-# minhashemi.github.io
